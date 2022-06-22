@@ -1,1 +1,1 @@
-# contact us email: glass_smart@yahoo.com
+# contact us email: media_solo@yahoo.com
